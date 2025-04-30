@@ -1,2 +1,9 @@
-# Matrix
-Tools that help you to conquer the world
+MATRIX
+TOOLS THAT HELP YOU TO CONQUER 
+1•DISCIPLINE 
+2•COMMITMENT 
+3•GOAL
+4•VISION
+5•MISSION 
+6•STRATEGY
+7•WORK
